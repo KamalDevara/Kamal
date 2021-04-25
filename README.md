@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KAMAL DEVARA
-- 👀 I’m interested in playing agmes
+- 👀 I’m interested in hangout with my friends
 - 🌱 I’m currently working
 - 💞️ I’m looking to collaborate on software developer
 - 📫 How to reach me devara.kamal23@gmail.com
